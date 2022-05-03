@@ -1,2 +1,2 @@
-# Bhosdiwala Rahul
+# Welcome to IIMJ
 
